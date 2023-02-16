@@ -1,2 +1,0 @@
-# Nino_GOGOLADZE_PW6
-
